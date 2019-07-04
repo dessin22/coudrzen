@@ -23,9 +23,17 @@ Le but c'est de transmettre mon expérience de modéliste en formant les personn
 
 ### Prestations 
 
-*2 Formules* : cours particuliers à domicile  ou cours collectifs à domicile 
+**2 Formules** : cours particuliers à domicile  ou cours collectifs à domicile 
 
+TARIFS /
 
+20€ de l'heure cours 1 personne 
+
+15€ de l'heure  par personne / cours pour groupe 3 personnes maxi
+
+Pour cours avec demande particulières , demandez un devis sur mesures 
+
+Accepte des formules stages ou pour des associations ou des centres animations : demandez un devis 
 
 
 ### Partenariats
