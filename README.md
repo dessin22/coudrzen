@@ -22,8 +22,8 @@ Le but c'est de transmettre mon expérience de modéliste en formant les personn
 **Favoriser** le Faire soi - même 
 
 
-```markdown
-Syntax highlighted code block
+```PRESTATIONS 
+Cours en particuliers ou en collectif 
 
 # Header 1
 ## Header 2
