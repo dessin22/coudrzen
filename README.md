@@ -44,6 +44,7 @@ For more details see [GitHub Flavored Markdown](https://guides.github.com/featur
 
 ### Partenariats
 Avec les Créatives à Dinan , possible de donner des cours sur différents thèmes en fonction du programme proposé , en groupe .
+
 https://www.facebook.com/lescreativesdinan/
 
 Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/dessin22/coudrzen/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
