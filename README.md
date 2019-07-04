@@ -10,6 +10,8 @@ J'ai pu obtenir des compétences très variables entre le chaine et trame et la 
 ### Les Valeurs et l'Ethique 
 
 Le but c'est de transmettre mon expérience de modéliste en formant les personnes à la couture et les sensibliser sur la surconsommation .
+Je vous accompagne pour vous aider sur la partie technique et l'utilisation des bons thermes .
+Je vous encourage sur votre projet car vous êtes toutes capables 
 
 **Promouvoir** le métier manuel en France 
 
@@ -39,7 +41,7 @@ Accepte des formules stages ou pour des associations ou des centres d'animations
 ### Partenariats
 Avec les Créatives à Dinan , possible de donner des cours sur différents thèmes en fonction du programme proposé , en groupe .
 
-[page facebook](https://www.facebook.com/lescreativesdinan/)
+[https://www.facebook.com/lescreativesdinan/](https://www.facebook.com/lescreativesdinan/)
 
 
 ### Contact
