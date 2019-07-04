@@ -31,13 +31,12 @@ Le but c'est de transmettre mon expérience de modéliste en formant les personn
 ### Partenariats
 Avec les Créatives à Dinan , possible de donner des cours sur différents thèmes en fonction du programme proposé , en groupe .
 
-https://www.facebook.com/lescreativesdinan/
+[page facebook](https://www.facebook.com/lescreativesdinan/)
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/dessin22/coudrzen/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
 
 ### Support or Contact
 
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+
 
 Merci de me contacter par tél : 06 33 82 51 91 ou par mail : cathy........
 
