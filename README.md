@@ -7,9 +7,20 @@ Je me suis adaptée professionellement  à la crise économique du textile dans 
 J'ai pu obtenir des compétences très variables entre le chaine et trame et la maille .
 
 
-### Markdown
+### Les Valeurs et l'Ethique 
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+Le but c'est de transmettre mon expérience de modéliste en formant les personnes à la couture et les sensibliser sur la surconsommation .
+
+**Promouvoir** le métier manuel en France 
+
+**Perdurer** l'artisanat et transmettre aux générations futurs
+
+**Lutter** contre le gaspillage vestimentaire en redonnant une vie par la customisation
+
+**Lien social** intergénérationnel et collectif pour une ambiance dans la bonne humeur 
+
+**Favoriser** le Faire soi - même 
+
 
 ```markdown
 Syntax highlighted code block
