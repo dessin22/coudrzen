@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Bienvenue les passionné(e)s de Couture 
 
 You can use the [editor on GitHub](https://github.com/dessin22/coudrzen/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
