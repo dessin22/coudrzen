@@ -21,24 +21,10 @@ Le but c'est de transmettre mon expérience de modéliste en formant les personn
 
 **Favoriser** le Faire soi - même 
 
+### Prestations 
 
-```PRESTATIONS 
-Cours en particuliers ou en collectif 
+*2 Formules* : cours particuliers à domicile  ou cours collectifs à domicile 
 
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
 
 For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
 
