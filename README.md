@@ -29,9 +29,9 @@ Je vous encourage sur votre projet car vous êtes toutes capables
 
 TARIFS /
 
-**20€** de l'heure par cours / 1 personne 
+- **20€** de l'heure par cours / 1 personne 
 
-**15€** de l'heure par personne / cours pour groupe 3 personnes maxi
+- **15€** de l'heure par personne / cours pour groupe 3 personnes maxi
 
 Pour cours avec demande particulières , demandez un devis sur mesures 
 
