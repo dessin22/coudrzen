@@ -35,7 +35,7 @@ TARIFS /
 
 Pour cours avec demande particulières , demandez un devis sur mesures 
 
-Accepte des formules stages ou pour des associations ou des centres d'animations ou Ehpad : demandez un devis personnalisé 
+Propose des forfaits pour des associations ou des centres d'animations ou Ehpad : demandez un devis personnalisé 
 
 
 ### Partenariats
