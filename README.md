@@ -26,7 +26,7 @@ Le but c'est de transmettre mon expérience de modéliste en formant les personn
 *2 Formules* : cours particuliers à domicile  ou cours collectifs à domicile 
 
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+
 
 ### Partenariats
 Avec les Créatives à Dinan , possible de donner des cours sur différents thèmes en fonction du programme proposé , en groupe .
