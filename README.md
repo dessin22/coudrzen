@@ -27,13 +27,13 @@ Le but c'est de transmettre mon expérience de modéliste en formant les personn
 
 TARIFS /
 
-20€ de l'heure par cours / 1 personne 
+**20€** de l'heure par cours / 1 personne 
 
-15€ de l'heure par personne / cours pour groupe 3 personnes maxi
+**15€** de l'heure par personne / cours pour groupe 3 personnes maxi
 
 Pour cours avec demande particulières , demandez un devis sur mesures 
 
-Accepte des formules stages ou pour des associations ou des centres animations : demandez un devis personnalisé 
+Accepte des formules stages ou pour des associations ou des centres d'animations ou Ehpad : demandez un devis personnalisé 
 
 
 ### Partenariats
@@ -42,9 +42,7 @@ Avec les Créatives à Dinan , possible de donner des cours sur différents thè
 [page facebook](https://www.facebook.com/lescreativesdinan/)
 
 
-### Support or Contact
-
-
+### Contact
 
 Merci de me contacter par tél : 06 33 82 51 91 ou par mail : cathy........
 
