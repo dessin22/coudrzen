@@ -29,11 +29,11 @@ Je vous encourage sur votre projet car vous êtes toutes capables
 
 TARIFS /
 
-- **20€** de l'heure par cours / 1 personne 
+- **25€**HT de l'heure par cours / 1 personne 
 
-- **15€** de l'heure par personne / cours pour groupe 3 personnes maxi
+- **15€**HT de l'heure par personne / cours pour groupe 3 personnes maxi
 
-Pour cours avec demande particulières , demandez un devis sur mesures 
+Pour cours avec demande particulière , demandez un devis sur mesures 
 
 Propose des forfaits pour des associations ou des centres d'animations ou Ehpad : demandez un devis personnalisé 
 
@@ -46,7 +46,7 @@ Avec les Créatives à Dinan , possible de donner des cours sur différents thè
 
 ### Contact
 
-Merci de me contacter par tél : 06 33 82 51 91 ou par mail : cathy........
+Merci de me contacter par tél : 06 33 82 51 91 ou par mail : cathycoudrzen@gmail.com
 
 Pour les inscriptions , remplir la fiche ci joint 
 
