@@ -3,9 +3,9 @@
  FAIRE SOI MEME c'est ma passion depuis plus de 35 ans et j'ai choisi d'apprendre le métier de Modéliste .
 
 Mon parcours commence à Tours au lycée Choiseul pour 3 ans et j'obtiens un Brevet de technicien en vêtements créations et mesures.
-Je me suis adaptée professionellement  à la crise économique du textile dans les années 90 et j'ai rejoins différentes entreprises ou ateliers sur différents départements .
+Je me suis adaptée professionellement  à la crise économique du textile dans les années 90 et j'ai rejoins différentes entreprises ou ateliers en Mayenne , Indre et Loire ,Maine et Loire et la Manche  .
 J'ai pu obtenir des compétences très variables entre le chaine et trame et la maille .
-Aujourd'hui , j'ai envie de partager avec vous et de transmettre mon savoir faire afin de passer un moment de plaisir .
+Aujourd'hui , j'ai envie de partager avec vous et de transmettre mon savoir faire afin de passer un moment de plaisir en couture  .
 
 
 ### Les Valeurs et l'Ethique 
