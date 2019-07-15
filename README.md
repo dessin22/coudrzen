@@ -31,7 +31,7 @@ TARIFS /
 
 - **25€**HT de l'heure par cours / 1 personne 
 
-- **15€**HT de l'heure par personne / cours pour groupe 3 personnes maxi
+- **15€**HT de l'heure par personne / cours pour groupe de 3 personnes 
 
 Pour cours avec demande particulière , demandez un devis sur mesures 
 
